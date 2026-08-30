@@ -5,4 +5,4 @@
       - LinekdIn: https://www.linkedin.com/in/johnsonmia
 - Portfolio: https://johnsonmia.com/
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: I am a big Swiftie.
+- ⚡ Fun fact: I love to read
