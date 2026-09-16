@@ -3,6 +3,8 @@
 - 📫 Feel free to connect:
 - Email: miajohnsonn0805@gmail.com
 - LinekdIn: https://www.linkedin.com/in/johnsonmia
-- Portfolio: https://johnsonmia.com/
+- Portfolio: https://johnsonmia.com
 - 😄 Pronouns: She/Her/Hers
-- ⚡ Fun fact: I love to read
+- ⚡ Some fun facts about me are:
+    - I love to read
+    - I figure skated for 10 years
